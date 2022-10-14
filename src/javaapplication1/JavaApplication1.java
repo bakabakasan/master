@@ -25,3 +25,7 @@ public class JavaApplication1 {
 УЦШКОЩ
 DFGJKNKGNDKLS
 SVBKJN DKFN AKLD
+HRTH;HLM,;
+QETK,ER;HP
+        QTLKLTER,H;PL,
+RMELKMGLK
