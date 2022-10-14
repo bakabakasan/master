@@ -20,3 +20,8 @@ public class JavaApplication1 {
     
 }
 //            Изменение файла
+цртоктрполтирдлаилаоыпуткдлптылоыпт мовлатл
+лвчотпрловыламов
+УЦШКОЩ
+DFGJKNKGNDKLS
+SVBKJN DKFN AKLD
